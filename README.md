@@ -24,4 +24,4 @@
 我们还提供了在线播放和磁力下载链接两种方式，确保您的观看需求得到充分满足。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha10 ）</span>
